@@ -6,7 +6,7 @@
 
 With its **simple one-touch gameplay**, Geometry Dash is an addictive arcade experience that keeps players coming back for more. Now, with the **unblocked version**, you can play anytime—whether at school, work, or anywhere else where game access is typically restricted.
 
-## <a href="https://izigames.net/">👉 Play Geometry Dash Unblocked 👈</a>
+## <a href="https://izigames.net/geometry-dash/">👉 Play Geometry Dash Unblocked 👈</a>
 
 ## Why Play Geometry Dash Unblocked?
 
